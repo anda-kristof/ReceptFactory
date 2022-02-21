@@ -38,3 +38,28 @@ Töltelék:
 - 1db	citrom reszelt héja	
 - 20dkg	lekvár	
 - porcukor
+
+##Almáspit
+-Hozzávalók
+50 dkg finomliszt
+25 dkg margarin
+10 dkg porcukor
+2 db tojás
+0.5 csomag sütőpor
+7 nagy db alma
+fahéj ízlés szerint
+1 csomag vaníliás cukor
+15 dkg cukor
+Elkészítés
+A tálba összekeverjük a lisztet a sütőporral.
+A lisztbe belemorzsoljuk a margarint, porcukrot, tojásokat és összegyúrjuk.
+A tésztát meglisztezzük, hogy ne ragadjon. 2 részre osztjuk.
+Egy másik tálba belereszeljük az almákat, és hozzáadjuk a kristálycukrot (a cukor mennyiségét az alma savanyúsága is meghatározza, ha az alma savanyúbb, több cukor is mehet bele). Összekeverjük.
+Az almából kinyomkodjuk a levét (mert különben a tészta elázna), hozzáadjuk a fahéjat, vaníliát.
+Az egyik tésztánkat kisodorjuk, tepsi aljába elhelyezzük (a tepsit nem zsírozzuk!), és egyenletesen elosztjuk az almát. Kisodorjuk a másik tésztánkat is, és befedjük vele az almánkat.
+Villával megszurkáljuk a tészta tetejét, hogy sütés közbenfel ne hólyagozzon.
+Előmelegített sütőben közepes hőfokon aranybarnára sütjük. Még forrón megszórjuk vaníliás cukorral.
+Sütés hőfoka: 160 °C
+Sütés módja: alul-felül sütés
+Tepsi mérete: 30x25
+Sütés ideje: 20 perc
